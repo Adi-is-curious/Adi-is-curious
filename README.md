@@ -1,6 +1,6 @@
 # Hi there, I'm Aditya (Adi) 👋
 
-### 🚀 Entrepreneurial UI/UX Designer | AI-Powered Product Builder | Sustainability Enthusiast
+### Turning ideas into products. Currently: AirFlow Station & MentorAI.
 
 > Turning complex problem statements into viable product solutions — from zero-to-one, powered by modern AI development tools.
 
