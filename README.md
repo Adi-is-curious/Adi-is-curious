@@ -162,8 +162,6 @@ Premium digital legacy service preserving generational wisdom through documentar
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0A66C2?style=flat&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/aditya-bb3849265)
 [![Email](https://img.shields.io/badge/Email-EA4335?style=flat&logo=gmail&logoColor=white)](mailto:aditya.aloe29@gmail.com)
 
-📞 Phone: +91 9801781159
-
 ---
 
 ## 💡 Fun Fact
